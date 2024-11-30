@@ -38,4 +38,4 @@ CLS چیست ؟
 شکارچی منتظر زمان مناسب برای انجام این کار است.
 
 
-[https://sepehr.trade/%D8%A7%D9%84%DA%AF%D9%88%D8%B1%DB%8C%D8%AA%D9%85-%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1-%D9%81%D8%A7%D8%B1%DA%A9%D8%B3-%DA%86%DB%8C%D8%B3%D8%AA/][CLS link]
+[CLS](https://sepehr.trade/%D8%A7%D9%84%DA%AF%D9%88%D8%B1%DB%8C%D8%AA%D9%85-%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1-%D9%81%D8%A7%D8%B1%DA%A9%D8%B3-%DA%86%DB%8C%D8%B3%D8%AA/)
