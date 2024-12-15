@@ -53,7 +53,8 @@ ___
 و اکچوال بریک آو استراکچر کرده
 ![MasonCapFX](https://www.tradingview.com/x/bvNrV6wl/ "MasonCapFX")
 ___
-
+مارکت بشدت عاشق نقدینگی و ایندوسمت اسپانسرشیپ ه
+![MasonCapFX](https://www.tradingview.com/x/uo8W0SrN/ "MasonCapFX")
 ___
 مشابه عناصر: ob, brkb, fvg, bisi, sibi
 یک عنصر داریم به اسم: RDRB 
